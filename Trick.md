@@ -15,6 +15,8 @@ SCP-Trick was drafted into the Kozakuran military on Frostfall 11, 1912 instead 
 Records from the Tamnese Military indicate that SCP-Trick was a Kozakuran deserter and instead joined the Tamnese Military under SCP-Solaris.\
 SCP-Trick also joined SCP-Dovewing in the Tamnese Antifascist Association and sabotaged multiple Kozakuran gun factories.
 
+SCP-Octane was apprehended by Kozakuran officials at the Yokenen Theater in Hearthfire 1913 along with SCP-Firebolt, SCP-Helios, SCP-Trick, SCP-Deagle, SCP-Scarlet, SCP-Zero, and our current director Thoneh Aawi.
+
 SCP-Trick claims to have magical abilities, but all of SCP-Trick's antics are Sleight of Hand tricks. SCP-Trick is incredibly acrobatic and difficult to pin down.
 
 SCP-Trick may be neutralized by inhibiting his movement and surrounding him until exhaustion. 
