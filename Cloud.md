@@ -1,0 +1,19 @@
+# SCP-Cloud
+**Item:** Jijin Byo
+**Object Class:** Rogue
+**Threat Level:** 5
+**Description:** SCP-Cloud is a highly dangerous assassin that does not use magic. Birth records indicate he was born in Kyuu Manor in Uptown Tamna (Hasu District), Tamna on Sun's Dawn 14, 1896.\
+His mother succumbed to tuberculosis and his father was killed by **[REDACTED]**.
+
+Between 1903 to 1896, SCP-Solaris's journal entries detail that SCP-Cloud and SCP-Helios were close friends. SCP-Cloud was unaware of the identity of his father's killer until 1903.\
+On Rain's Hand 29, 1903, SCP-Cloud escaped the Kyuu Manor.
+
+Registration papers from the Moonlight Orphanage for Troubled Children indicate SCP-Cloud was captured on Sun's Height 6, 1903.\
+SCP-Cloud escaped from the orphanage on Sun's Dawn 14, 1906.
+
+SCP-Cloud's belongings suggest he belonged to the Syuu Clan between 1906 to 1914.
+Documentation from the Church of Latter Day Yoba indicates SCP-Cloud was baptized on Frostfall 8, 1911.
+
+SCP-Cloud has been confirmed the assassin of SCP-Deagle and SCP-Scarlet's father and Empress Mikisa Togawa. Receipts from the Syuu Clan indicate SCP-Cloud was commissioned by Satja Manoban.
+
+SCP-Cloud shows a dislike for violence now but is still highly dangerous. SCP-Cloud may be neutralized with non-magical movement inhibition.
