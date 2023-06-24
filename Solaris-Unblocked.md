@@ -18,16 +18,15 @@ Medical records from the Tamnese Military Hospital in 1902 indicate SCP-Solaris 
 SCP-Zero initiated the Ritual of Souls on SCP-Solaris on Frostfall, 1913.\
 The target soul was Yongtai Kyuu.\
 The actual soul was SCP-Zero.\
-By ripping open a portal to the spirit realm, 
+By ripping open a portal to the spirit realm, SCP-Zero was able to allow Kuu Ji'in to enter SCP-Solaris's body on Evening Star 25, 1913.\
+SCP-Solaris killed his mother on Evening Star 25, 1913 while under the influence.
 
-
+Medical records from the Tamnese Military Hospital in 1914 indicate SCP-Solaris was diagnosed with a severe case of General Anxiety Disorder, PTSD, Major Depression with Psychotic Features, migraines, and one kidney stone.\
+Treatment for the kidney stone was successful.
 
 SCP-Solaris has a confirmed kill count well over 5,000 soldiers and civilians. \
 He is quickly growing in power and his kill count is expected to grow rapidly in the next few years.
 
-As a threat to all human life, **SCP-Solaris must be neutralized immediately following the war.**\
+As a threat to all human life, **SCP-Solaris must be neutralized immediately following the war.** **SCP-Solaris must not be removed from SCP-Helios.**
 
-**SCP-Solaris must not be removed from SCP-Helios.**\
-
-SCP-Solaris may be neutralized with SCP-Helios or potentially with a nuclear weapon.\
 It is unclear how to neutralize SCP-Solaris.
