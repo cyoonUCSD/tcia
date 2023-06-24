@@ -6,6 +6,7 @@
 Birth records indicate he was born at the Millefee Hospital in Mousseux, Avignon on Sun's Height 12, 1902.\
 His mother was a prostitute who was killed in childbirth by SCP-Trick. His father is unknown. He has a brother, SCP-Dovewing, that he has a mildly strained relationship with.
 
+SCP-Trick and SCP-Dovewing were registered to the Millefee Orphanage until .\
 Records from Millefee Prison indicate SCP-Trick was arrested three times between 1906 to 1909.\
 Posters and contracts from across Avignon, Ravnica, Thalatas, Narnia, Kozakura, Zhonghua, and Tamna indicate that SCP-Trick travelled often to perform as a celebrity.\
 Records from the Tamnese Police Department indicate SCP-Trick was arrested twice between 1912 to 1913.\
