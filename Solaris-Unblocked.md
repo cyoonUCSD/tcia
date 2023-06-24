@@ -9,11 +9,11 @@ His mother has been killed by SCP-Solaris and his relationship with his father, 
 Records from private tutors indicate that SCP-Solaris showed a passion for acting but an aptitude for sword fighting.\
 Records on the Uptown Tamna Epitaph Registry state that SCP-Solaris claimed his first life, a 27 year old servant named Hanjin Byo, in 1896. The reason is undiscovered.\
 Medical records from the Tamnese Military Hospital in 1900 indicate SCP-Solaris has a moderate case of General Anxiety Disorder. \
-SCP-Solaris volunteered for the Tamnese Military Infantry Division in Morning Star 14, 1900.\
+SCP-Solaris volunteered for the Tamnese Military Infantry Division in Morning Star 14, 1900.
 
 SCP-Solaris discovered underground Kozakuran tunnels and filed a report on Rain's Hand 12, 1900.\
 After SCP-Starlight gassed the tunnels, SCP-Solaris began to quickly ascend ranks in the Tamnese Military.\
-Medical records from the Tamnese Military Hospital in 1902 indicate SCP-Solaris has insomnia.\
+Medical records from the Tamnese Military Hospital in 1902 indicate SCP-Solaris has insomnia.
 
 SCP-Zero initiated the Ritual of Souls on SCP-Solaris on Frostfall, 1913.\
 The target soul was Yongtai Kyuu.\
