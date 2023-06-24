@@ -5,7 +5,7 @@
 **Description:** SCP-Firebolt is a paladin with conflicting motives and origins.\
 Birth records and birth date are unable to be found.\
 Relation to any family is unknown.\
-Geneaology analysis indicates Mexican ancestry and potential familial relation to SCP-Mustang.\
+Geneaology analysis indicates Mexican ancestry and potential familial relation to SCP-Mustang.
 
 SCP-Firebolt's earliest record is a registration form from Mitori Orphanage in Kanato, Kozakura in Second Seed 19, 1883 as an infant.\
 The arrival of infant SCP-Firebolt was by sea in a large Mexican hat alongside a destroyed unreadable note and a bottle of hot sauce.\
